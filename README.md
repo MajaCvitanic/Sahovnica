@@ -1,3 +1,0 @@
-# Sahovnica
-# domaci-grb-
-# Sahovnica
